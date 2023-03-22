@@ -1,1 +1,0 @@
-# BI-Uebungsblatt_1
